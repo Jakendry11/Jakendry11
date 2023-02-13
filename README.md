@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jakendry11
-- 👀 I’m interested in life 
+- 👀 I’m interested in life, poetry, philosophy, cats, obviously coding and some bunch of other stuffs 
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on programming projects
 - 📫 How to reach me datboykendry@gmail.com
